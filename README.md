@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Bug Bounty , Dev**
 
-- 📫 How to reach me **aymenxx31@gmail.com**
+- 📫 How to reach me **maylo.yzx@proton.me**
 
 - ⚡ Fun fact **I Am To Young**
 
